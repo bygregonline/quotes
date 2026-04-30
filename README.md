@@ -1,4 +1,5 @@
 Al mundo le importa un comino tu pasión, y quizá a ti tampoco debería importarte.
+La desesperacion extrema del hombre es la oportunidad de Dios.
 Y el señor bajo y dijo esto esta de la madre
 Mucho que aprender todavía tienes.
 Fijate en lo que te fijas
